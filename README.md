@@ -1,2 +1,2 @@
 # hello-world
-bounty best prog for crypto
+bounty best projects for crypto
